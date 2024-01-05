@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 <!--
+Neurofunk remains a niche but influential genre within electronic music, appreciated for its intricate sound design and futuristic vibes.
 
 **Here are some ideas to get you started:**
 
